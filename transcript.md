@@ -24,6 +24,7 @@ site](http://joshuawise.com/28c3-transcript).
 Christian W\"ohrl [has also submitted a translation of this text into
 German](http://achnichts.cwoehrl.de/?p=3782).
 
+YouTube video for talk: http://www.youtube.com/watch?v=HUEvRyemKSg
 * * *
 
 Introducer:
